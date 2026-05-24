@@ -1,1 +1,1 @@
-тута я всё храню постааьте зачет плиз
+I'm keeping everything here, please check it out
