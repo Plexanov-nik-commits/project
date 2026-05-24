@@ -1,1 +1,1 @@
-двусвязный список дз по проге
+doubly linked list of tasks for the program
